@@ -16,4 +16,4 @@ The following video shows:
 - Creating charts
 
 Watch here:
-[https://youtube.com/nn9pEP7YEgY?si=Os2BOYJAFh3V5N07]
+[https://youtube.be/nn9pEP7YEgY?si=Os2BOYJAFh3V5N07]
